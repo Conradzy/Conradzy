@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 # 💫 About Me:
-I see pressure as a challenge, not a limitation. I’m Conrad, a highly adaptable BSIT 4th year student who enjoys learning, solving problems, and staying focused even in challenging situations. I’m always ready to adjust, learn, and grow.
+I see pressure as a challenge, not a limitation. I’m Conrad, a highly adaptable BSIT 4th year student who uses AI, enjoys learning, solving problems, and staying focused even in challenging situations. I’m always ready to adjust, learn, and grow.
 
 
 ## 🌐 Socials:
